@@ -36,7 +36,7 @@ Aspiring Software Engineer: A dedicated and enthusiastic engineering student wit
 
  📫 Connect With Me
 🔗 LinkedIn: [https://www.linkedin.com/in/your-profile  ](https://www.linkedin.com/in/k-r-bhumika-45a68531b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
-📧 Email: bhu2004mika@gmail.com  “Striving to transform ideas into reliable and impactful software solutions.”
+📧 Email: bhumikabhumi8393@gmail.com  “Striving to transform ideas into reliable and impactful software solutions.”
 
 
 ## 🌐 Socials:
